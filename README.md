@@ -1,1 +1,0 @@
-# jmgorgey.github.io
